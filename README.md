@@ -1,6 +1,6 @@
 ## #  
 
- <img width="765" height="416" alt="image" src="https://github.com/user-attachments/assets/85f2232d-081f-4d5f-a96f-07a93352185e" />
+ <https://cdn.discordapp.com/attachments/1194415447836201002/1502150941921509466/IMG_3334.gif?ex=69feaa95&is=69fd5915&hm=4e60d22ce8ec182457d4c7f1a66a162c756e210977d1911bbf48c7303ca453ce&/>
 
 
 
